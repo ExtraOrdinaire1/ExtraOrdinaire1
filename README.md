@@ -16,8 +16,8 @@
  👀 I’m interested in Pentesting
 
 
- 🌱 I’m currently learning for ceh and planning for oscp
-
+ 🌱 I'm blogging here .. 
+ https://infoincyber.blogspot.com/
 
  💞️ I’m looking to collaborate on ..
  
