@@ -28,6 +28,6 @@
 
 😄 Pronouns: he/him/his
 
-⚡ Fun fact: I love momo 🥟🥟🥟.
+⚡ Fun fact: I love sweet 🧁
 
 
