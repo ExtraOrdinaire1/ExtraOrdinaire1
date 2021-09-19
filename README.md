@@ -16,7 +16,7 @@
  👀 I’m interested in Pentesting
 
 
- 🌱 I'm blogging here .. 
+ 🌱 I'm blogging here Soon .. 
  https://infoincyber.blogspot.com/
 
  💞️ I’m looking to collaborate on ..
@@ -26,7 +26,6 @@
 
 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/gunjan-chimariya-76037717a/)
 
-😄 Pronouns: he/him/his
 
 ⚡ Fun fact: I love sweet 🧁
 
