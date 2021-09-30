@@ -24,7 +24,7 @@
 
 
 
-📫 How to reach me: [Linkedin](https://www.linkedin.com/in/gunjan-chimariya-76037717a/)
+📫 How to reach me: [Linkedin](##)
 
 
 ⚡ Fun fact: I love sweet 🧁
